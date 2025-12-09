@@ -1,1 +1,0 @@
-dame el clima de Dallas
